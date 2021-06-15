@@ -18,10 +18,7 @@
                                                                                                      
                                                    
 
-
-
-
-![d](https://user-images.githubusercontent.com/42875373/122036933-b7d60100-cdf1-11eb-9e44-b91da75fa902.gif) Hey 𝐟𝐞𝐥𝐥𝐨𝐰 <𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛𝚜/>! I'm Dhruv Gandhi!      
+ Hey 𝐟𝐞𝐥𝐥𝐨𝐰 <𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛𝚜/>! I'm Dhruv Gandhi!      
 
 
                                                                
